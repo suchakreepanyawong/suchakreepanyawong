@@ -2,7 +2,6 @@
 ===========================================================================================================================================
 
 * 🌍  I'm based in Chiangmai
-* ✉️  You can contact me at [Suchakreeplaystore@gmai.com](mailto:Suchakreeplaystore@gmai.com)
 
 ### Skills
 
